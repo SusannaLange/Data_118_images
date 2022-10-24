@@ -1,1 +1,1 @@
-# Data_118_lectures
+# Data_118_images_collection
